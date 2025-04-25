@@ -19,5 +19,5 @@
 
 - ✉️ Email: ltwon100@gmail.com / ltwon100@naver.com / ltwon100100@afa.ac.kr /ltwon100@cau.ac.kr
 - 🧭 Affiliation: Korea Air Force Academy, Republic of Korea  
-- 🌐 Blog/Portfolio: *(있다면 링크 추가)*
+- 🌐 Blog/Portfolio: 
 
